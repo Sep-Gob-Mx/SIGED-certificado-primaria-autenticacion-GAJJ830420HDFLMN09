@@ -1,2 +1,0 @@
-# SIGED-certificado-primaria-autenticacion-GAJJ830420HDFLMN09
-GAJJ830420HDFLMN09
